@@ -1,3 +1,5 @@
+![Banner]()
+
 # 💫 About Me:
 I am a victim of sir dex<br>
 
